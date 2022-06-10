@@ -7,9 +7,9 @@
 
 - 💬 Ask me about **food!**
 
-- 📫 How to reach me **candacegarvin@pursuit.org**
+- 📫 How to reach me **candace.garvin@icloud.com**
 
-- ⚡ Fun fact **I think I am funny.**
+- ⚡ Fun fact **I play the guitar.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
